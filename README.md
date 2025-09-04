@@ -1,1 +1,3 @@
-# -C-mo-dividir-un-ambiente-sin-obra-
+# -Cómo-dividir-un-ambiente-sin-obra-
+Muchas veces nos resulta imprescindible generar una separación dentro de un ambiente, ya que resulta necesaria para ayudarnos a aumentar nuestra concentración, si se tratara de acondicionar para una zona de trabajo o estudio, o para delimitar la zona de descanso de alguna área común. Incluso dentro de una habitación compartida por hermanos, para garantizar que cada uno cuente con su espacio personal.
+Y aun con esta necesidad, muchos deciden no encarar la transformación al no estar dispuestos a comenzar con una obra. Para deleite de todos ellos aquí vamos a presentar distintas alternativas de generar dicha división sin obra alguna.
